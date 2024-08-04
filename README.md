@@ -1,2 +1,2 @@
-# My_Portfolio
+# My Portfolio
 I craft stunning websites and apps that drive success for your business.
